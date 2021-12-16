@@ -10,4 +10,3 @@ spending time with the monkey.She told het husband that if the fruits are so jui
 Get me the heart pf monkey.The crocodile was not willing to kill but he had no choice.
 
 
-Climax of the story:
